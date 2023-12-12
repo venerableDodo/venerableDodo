@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @venerableDodo
+- 🌱 I’m currently learning radiation modelling
